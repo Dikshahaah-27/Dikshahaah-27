@@ -1,4 +1,4 @@
-# Hi, I'm Diksha Dhage 👋
+# Hi, I'm Diksha 👋
 
 ### 💻 Aspiring Software Developer | MCA Student
 
